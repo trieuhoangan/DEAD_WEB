@@ -1,1 +1,0 @@
-This is WEB for lazy dog. Especially 33tutu.
